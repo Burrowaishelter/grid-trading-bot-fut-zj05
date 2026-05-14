@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with grid trading bot for futures ultimate Strategy | leverage-management & isolated-margin, the #1 grid trading bot for futures. Includes leverage-management
 
 
 
